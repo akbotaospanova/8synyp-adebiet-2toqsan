@@ -1,0 +1,1 @@
+# 8synyp-adebiet-2toqsan
